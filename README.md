@@ -1,0 +1,3 @@
+# itlogia-intensive
+
+![](/certificate.jpeg)
